@@ -1,1 +1,1 @@
-# Kalp-Hastal-Tahmini
+# Kalp-Hastalığı-Tahmini
